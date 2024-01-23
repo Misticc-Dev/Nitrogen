@@ -1,0 +1,1 @@
+No Warranty or Liability is provided with the Software. This notice is to be included in all portions and copies of the Software.
